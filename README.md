@@ -1,0 +1,1 @@
+These documents represents the research effort made by the Author in the past several months with the assistance of AI in physically and mathematically explainging the essence of the universe, who we human are, where we were, are and will be, together with a few derivative theories that link to the modern physics.
